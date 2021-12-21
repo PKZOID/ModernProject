@@ -1,6 +1,8 @@
 # ModernProject
 All Modern Project Open Soruce And Free Of Cost 100% Safe Credit Pkzoid/Pkgamer/Atifsiddique
 
+Find Bug And Track Report Send At:Snipergamerpk@gmail.com
+
 I Upload Daily New Project 100% Use Python
 
 Use My Project To Make Modern App 
